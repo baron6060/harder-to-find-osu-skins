@@ -1,7 +1,7 @@
 # harder-to-find-osu-skins
 these skins are even HARDER to find #lol #dmca
+# This is the Hard-to-Find-osu-skins github, post DMCApocalypse. if you do not know what happened, go look [at this thread on twitter](https://twitter.com/osuDramaDays/status/1612743512230879232?s=20).
 ### [From this point forward, the rest of the readme.md is copy-pasted from the previous github]
-# Hard to find osu skins
 
 ### if you have skins you wanna add to this list or any of the skins from [this playlist](https://www.youtube.com/playlist?list=PLhCpsjNxneK5jRgP5Gibx527VhO8wy_vD), please contact baron6060#6548 or chip#4111 on discord.
 
@@ -227,7 +227,7 @@ other cool skin githubs: [Nymphia's skin github](https://github.com/nymphiaosu/f
 # [Moe[Sagi]ri](https://excel.s-ul.eu/1ZRimpg615PC9FvY.osk) | [Preview](https://streamable.com/538n2p)
 ![](https://user-images.githubusercontent.com/58571851/123553215-8a3e6f80-d782-11eb-8705-678b71439c0c.jpg)
 
-# [private skin you are NOT allowed to have](TBD) | no preview for this one
+# [private skin you are NOT allowed to have](https://baron6060.s-ul.eu/KKyXvKzf) | no preview for this one
 ### THANKS Nymphia#8610 FOR REMAKING THE SKIN!!!!!!!!
 [NO SCREENSHOTS ALLOWED]
 
