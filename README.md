@@ -289,6 +289,10 @@ other cool skin githubs: [Nymphia's skin github](https://github.com/nymphiaosu/f
 # [Recia](https://mega.nz/file/RMQkyJ5b#aEQWsfXTKpC5kgq86Ly5q3MNXZv0_-TSOLArKBKswzU) | [Preview](https://youtu.be/dmWdqAS8wAU)
 ![](https://user-images.githubusercontent.com/86570889/123666572-de039400-d828-11eb-8898-485374d982f6.jpg)
 
+# [Recia's Skin + B e N i's Skin + evb edit (Private)](https://b.catgirlsare.sexy/8OAg6xX4RJBf.osk) | [Preview](https://www.youtube.com/watch?v=7nx_oMjRPOk)
+### Thanks to faye#1111 for helping us with the remake
+![](https://user-images.githubusercontent.com/58571851/213938975-202c5e30-871e-4f5d-8f00-d00f4ae81554.jpg)
+
 # [Rixia Mao](https://mega.nz/file/9EpEUTQR#RnyxxxuhoKkd3RmuwCtzBKe3RyvRNmcKcmGsn7dzVhI) | [Preview](https://youtu.be/YbRBnuq9JAw?t=93)
 ![](https://user-images.githubusercontent.com/86570889/198282920-1c37745a-721c-4047-918e-d1b99b731d3a.jpg)
 
