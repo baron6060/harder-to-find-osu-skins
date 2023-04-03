@@ -64,7 +64,7 @@ other cool skin githubs: [Nymphia's skin github](https://github.com/nymphiaosu/f
 # [Axarious aesthetic 2014 remake](https://mega.nz/file/VF4nhKra#1ciFL2ngJs3cXfZrTlwIChWqmZkuB8FCMjEIbiM112A) | [Preview](https://youtu.be/6dMIKHkNvXQ)
 ![](https://user-images.githubusercontent.com/58571851/138344882-ca013c75-656a-49ca-93bd-04a201ef9a66.jpg)
 
-# [azer lirua edit](https://b.catgirlsare.sexy/9WGUuk8HRAg5.osk) | [Preview](https://youtu.be/6eobkwmv6Ww)
+# [azer lirua edit](https://files.getrektby.us/9WGUuk8HRAg5.osk) | [Preview](https://youtu.be/6eobkwmv6Ww)
 ![](https://user-images.githubusercontent.com/58571851/154796377-9664ec75-50b8-46c9-b0d1-1bd6ca1656a2.jpg)
 
 # [bahamete (Kamui mod v2 Grey)](https://ariaisdumb.s-ul.eu/I9di94gq) | [Preview](https://youtu.be/BiiftB3tOzw)
@@ -111,7 +111,7 @@ other cool skin githubs: [Nymphia's skin github](https://github.com/nymphiaosu/f
 # [Crystal](https://ariaisdumb.s-ul.eu/tAiYaWtL) | [Preview](https://youtu.be/ApUh5uuQP2k?t=455)
 ![](https://user-images.githubusercontent.com/86570889/205635935-e3851581-9689-4d8e-8696-537ad506aff9.jpg)
 
-# [Corsace Open remake](https://b.catgirlsare.sexy/Dfr-Kfk5cWRa.osk) | [Preview](https://streamable.com/w9kttc)
+# [Corsace Open remake](https://files.getrektby.us./Dfr-Kfk5cWRa.osk) | [Preview](https://streamable.com/w9kttc)
 ![](https://user-images.githubusercontent.com/58571851/185676084-30c33fb3-9f73-4ba3-b190-a7bb2ef620b9.jpg)
 
 # [Da Capo III](https://excel.s-ul.eu/Ku4PrqB99MnIFIYW.osk) | [Preview](https://streamable.com/p7zm20)
@@ -134,14 +134,14 @@ other cool skin githubs: [Nymphia's skin github](https://github.com/nymphiaosu/f
 # [elohere x Seouless (HDAcai edit)](https://excel.s-ul.eu/nAAtY34PCybNbRko.osk) | [Preview](https://streamable.com/svllz2)
 ![](https://user-images.githubusercontent.com/58571851/123553168-5400f000-d782-11eb-8e50-ccf6ba8b5714.jpg)
 
-# [EmertxE](https://b.catgirlsare.sexy/Mx5BamXR18Hl.osk) | [Preview](https://www.bilibili.com/video/BV19p411o7J5)
+# [EmertxE](https://files.getrektby.us/Mx5BamXR18Hl.osk) | [Preview](https://www.bilibili.com/video/BV19p411o7J5)
 ### Thanks Rishard#2011 for sharing the skin!
 ![](https://user-images.githubusercontent.com/58571851/178541904-5cc9e93e-b46c-4bc1-afc5-b8d9a3b2ff23.jpg)
 
 # [Emperorpenguin83](https://mega.nz/file/wFpkBa4C#jWvHS2ebzWb2ne0RgPpUBMJlUpWEKtaZUzxhp5sCPU0) | [Preview](https://youtu.be/iAbjCPWdxk4)
 ![](https://user-images.githubusercontent.com/86570889/123664725-20c46c80-d827-11eb-8318-6d64982cef63.jpg)
 
-# [exhibit III](https://b.catgirlsare.sexy/gciIqT7VKFcI.osk) | [Preview](https://youtu.be/WRcYYQacXh0)
+# [exhibit III](https://files.getrektby.us/gciIqT7VKFcI.osk) | [Preview](https://youtu.be/WRcYYQacXh0)
 ### Massive thanks to xohlity#2307, hael#7011 and Nymphia#8610 (NCRONFNTOPHLIAC#6452 for helping with sliderb0 and hit animations) for remaking the skin.
 ![screenshot4284](https://user-images.githubusercontent.com/58571851/197828776-06589849-dd22-41ab-936f-2768422f7a9e.jpg)
 
@@ -250,7 +250,7 @@ other cool skin githubs: [Nymphia's skin github](https://github.com/nymphiaosu/f
 # [Niko v7.1337 By Shavit](https://cdn.discordapp.com/attachments/858883500464013332/858883945961357342/Niko_7.0.1337.osk) | [Preview](https://youtu.be/AVmx1c5LqKg)
 ![](https://user-images.githubusercontent.com/58571851/123567622-42900600-d7cb-11eb-900b-4c1d84f93c99.jpg)
 
-# [Nik's winter cup remake](https://b.catgirlsare.sexy/_0Tbe0vZZ7RK.osk) | [Preview](https://streamable.com/fldtmb)
+# [Nik's winter cup remake](https://files.getrektby.us/_0Tbe0vZZ7RK.osk) | [Preview](https://streamable.com/fldtmb)
 ![](https://user-images.githubusercontent.com/58571851/162946750-05195ed6-49df-4e3a-86c6-8d11bea9421d.jpg)
 
 # [OhAHO](https://mega.nz/file/BM401KCK#ij0Tx0b1Ni3tzuMeFqr4JrsN6PDhpp1qjR97AaOeZKQ) | [Preview](https://streamable.com/cfu8pa)
@@ -289,7 +289,7 @@ other cool skin githubs: [Nymphia's skin github](https://github.com/nymphiaosu/f
 # [Recia](https://mega.nz/file/RMQkyJ5b#aEQWsfXTKpC5kgq86Ly5q3MNXZv0_-TSOLArKBKswzU) | [Preview](https://youtu.be/dmWdqAS8wAU)
 ![](https://user-images.githubusercontent.com/86570889/123666572-de039400-d828-11eb-8898-485374d982f6.jpg)
 
-# [Recia's Skin + B e N i's Skin + evb edit (Private)](https://b.catgirlsare.sexy/8OAg6xX4RJBf.osk) | [Preview](https://www.youtube.com/watch?v=7nx_oMjRPOk)
+# [Recia's Skin + B e N i's Skin + evb edit (Private)](https://files.getrektby.us/8OAg6xX4RJBf.osk) | [Preview](https://www.youtube.com/watch?v=7nx_oMjRPOk)
 ### Thanks to faye#1111 for helping us with the remake
 ![](https://user-images.githubusercontent.com/58571851/213938975-202c5e30-871e-4f5d-8f00-d00f4ae81554.jpg)
 
@@ -329,7 +329,7 @@ other cool skin githubs: [Nymphia's skin github](https://github.com/nymphiaosu/f
 # [Sunflower Vol.1](https://excel.s-ul.eu/764JtJUnRsbHKpdb.osk) | [Preview](https://youtu.be/spLv3sFb6jg)
 ![](https://user-images.githubusercontent.com/58571851/153713618-0cec661c-5d3e-43b3-83cd-3373e6c15c76.jpg)
 
-# [Toke skin v5 HR](https://b.catgirlsare.sexy/wXgK7HBTgbwj.osk) | [Preview](https://youtu.be/SMZUhxAUYLY)
+# [Toke skin v5 HR](https://files.getrektby.us/wXgK7HBTgbwj.osk) | [Preview](https://youtu.be/SMZUhxAUYLY)
 ### Thanks Rishard#2011 for sharing the skin!
 ![](https://user-images.githubusercontent.com/58571851/178541633-704825fe-108b-496a-8f8c-e6773a43f57e.jpg)
 
@@ -352,7 +352,7 @@ other cool skin githubs: [Nymphia's skin github](https://github.com/nymphiaosu/f
 ### Thanks [ArtistMatsuri](https://osu.ppy.sh/users/16518808) for sharing the skin!
 ![](https://ariania.s-ul.eu/AWxlfBRv)
 
-# [Vocal](https://b.catgirlsare.sexy/NpbvyfP1ndg-.osk) | [Preview](https://youtu.be/v84b1yl4NVg)
+# [Vocal](https://files.getrektby.us/NpbvyfP1ndg-.osk) | [Preview](https://youtu.be/v84b1yl4NVg)
 ![](https://user-images.githubusercontent.com/58571851/153713714-591f75c3-9b40-4318-b03b-727732ff2c0a.jpg)
 
 # [Yamemasita](https://cdn.discordapp.com/attachments/1031227602469388309/1031591901062762496/yamemasita.osk) | [Preview](https://youtu.be/NuJ6-sN11EY)
