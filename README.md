@@ -16,7 +16,7 @@ other cool skin hubs:
 [osu brazil](https://sites.google.com/view/osu-skins-br/skins), 
 [morgan](https://github.com/venomthor2/morg-osu-skins-epic-wow-)
 
-#### _WARNING: Links on Garnet27's github are most likely ip loggers, use [urlex](https://urlex.org/) to bypass them._
+#### _WARNING: Links on Garnet27's github are most likely ip loggers, use [a URL expander](https://www.expandurl.net/) to bypass them._
 
 #### Pro tip: CHECK NYMPHIAS GITHUB RIGHT NOW!
 
