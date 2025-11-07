@@ -186,7 +186,7 @@ other cool skin hubs:
 # [Hatsuyuki SakuraVer1.1](https://excel.s-ul.eu/FPqVFjEjGbzKOyoW.osk) | [Preview](https://streamable.com/y7ij5u)
 ![](https://user-images.githubusercontent.com/58571851/123553716-a5f74500-d785-11eb-8d2f-dea95b865f66.jpg)
 
-# [Heatherfield Skin (- DARK - edit)](https://cdn.discordapp.com/attachments/448837091347136513/817543956467941446/Heatherfield_Skin.osk) | [Preview](https://streamable.com/e7tdc3) | TY angustia#0064 for sharing the skin <3
+# [Heatherfield Skin (- DARK - edit)](https://excel.s-ul.eu/RjapVpf8ceQJ3rvX.osk) | [Preview](https://streamable.com/e7tdc3) | TY angustia#0064 for sharing the skin <3
 ![](https://user-images.githubusercontent.com/58571851/132926417-5c5f3426-3317-4790-9b95-fa71bdb4b8cc.jpg)
 
 # [Heinzen](https://www.dropbox.com/s/cmlg5gmnmxqoful/Something%20Something%207.osk?dl=0) | [Preview](https://youtu.be/Q3ouNe0yx8Y)
@@ -255,13 +255,13 @@ other cool skin hubs:
 # [Mugio3 (Vento edit)](https://mega.nz/file/MIoihKRB#LHisympdjcSL7XaoGNhBKZWFiBbvVcIZ-vrBdbFb5oo) | [Preview](https://streamable.com/exi7mo)
 ![](https://user-images.githubusercontent.com/86570889/198281551-617e126c-8f41-4cea-937e-311b388fc80c.jpg)
 
-# [Murasaki_sk (Xeltol edit)](https://cdn.discordapp.com/attachments/899061118675345418/959473758400290886/murasaki.osk) | [Preview](https://youtu.be/CSoHur7eZWQ)
+# [Murasaki_sk (Xeltol edit)](https://b.catgirlsare.sexy/gzi_k68E5Jh5.osk) | [Preview](https://youtu.be/CSoHur7eZWQ)
 ![](https://user-images.githubusercontent.com/58571851/161298079-a2260fc3-4871-40c1-bd04-1bb05b2c3920.jpg)
 
 # [Nara 6.5](https://www.dropbox.com/s/fmxtmvh3tg9ef1x/Nara%206.5.osk?dl=0) | [Preview](https://youtu.be/anDvewbqpfw)
 ![](https://user-images.githubusercontent.com/86570889/129324922-f1cdc93a-314d-4e69-b521-38536fd645cc.jpg)
 
-# [Niko v7.1337 By Shavit](https://cdn.discordapp.com/attachments/858883500464013332/858883945961357342/Niko_7.0.1337.osk) | [Preview](https://youtu.be/AVmx1c5LqKg)
+# [Niko v7.1337 By Shavit](https://b.catgirlsare.sexy/j2XeYMScjDiZ.osk) | [Preview](https://youtu.be/AVmx1c5LqKg)
 ![](https://user-images.githubusercontent.com/58571851/123567622-42900600-d7cb-11eb-900b-4c1d84f93c99.jpg)
 
 # [Nik's winter cup remake](https://files.getrektby.us/_0Tbe0vZZ7RK.osk) | [Preview](https://streamable.com/fldtmb)
@@ -369,11 +369,11 @@ other cool skin hubs:
 # [Vocal](https://files.getrektby.us/NpbvyfP1ndg-.osk) | [Preview](https://youtu.be/v84b1yl4NVg)
 ![](https://user-images.githubusercontent.com/58571851/153713714-591f75c3-9b40-4318-b03b-727732ff2c0a.jpg)
 
-# [Yamemasita](https://cdn.discordapp.com/attachments/1031227602469388309/1031591901062762496/yamemasita.osk) | [Preview](https://youtu.be/NuJ6-sN11EY)
+# [Yamemasita](https://b.catgirlsare.sexy/u5Qnd5lQpE9U.osk) | [Preview](https://youtu.be/NuJ6-sN11EY)
 ### THANKS Nymphia#8610 FOR THE SKIN!!!!!!!!
 ![](https://user-images.githubusercontent.com/58571851/197209701-529fd1ca-8ac7-4b57-bc80-b187568e4ba0.jpg)
 
-# [zzz_unfinished](https://cdn.discordapp.com/attachments/714849342678106193/949765449833390150/zzz_unfinished.osk) | [Preview](https://youtu.be/G1zHvD3VRxQ)
+# [zzz_unfinished](https://b.catgirlsare.sexy/vJHjfssmoxMk.osk) | [Preview](https://youtu.be/G1zHvD3VRxQ)
 ![](https://user-images.githubusercontent.com/58571851/156899148-f71a9396-e682-4ace-9689-618246118830.jpg)
 
 ---
